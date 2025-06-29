@@ -8,4 +8,6 @@
 💡 More Projects Await You!
 I have worked on several other exciting projects. To explore them, visit the respective branches in this repository.
 
-Thank you for visiting! Stay connected for more updates. 🚀
+Thanks for visiting! 🌟
+
+If you found this helpful and want to learn more, follow me!
