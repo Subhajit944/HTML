@@ -10,6 +10,6 @@ I have worked on several other exciting projects. To explore them, visit the res
  
 Thanks for visiting! 🌟
 
-If you found this helpful and want to learn more, follow me! 
+If you found this helpful and want to learn more, follow me!  
  
  
